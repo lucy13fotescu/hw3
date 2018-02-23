@@ -1,5 +1,5 @@
 # hw3
-[ОПРОС](https://docs.google.com/forms/d/1KxBWSdYuczYivhgrjOaGITSE4z_xj_9MjHLBbWdaEj)
+[ОПРОС](https://goo.gl/forms/hELMC5EdeoIWTnbX2)
 
 [ТАБЛИЦА](https://docs.google.com/spreadsheets/d/1VhOE65-5Q4mvDDizt8UKJ32kchW6eOdvNZt_gVE34Ak)
 
